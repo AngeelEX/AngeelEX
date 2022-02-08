@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AngeelEX
-- 👀 I’m interested in girls
+- 👀 I’m interested in everyone
 - 🌱 I’m currently learning sports
 - 💞️ I’m looking to collaborate on anything i lile
 - 📫 How to reach me arent no
